@@ -8,4 +8,4 @@
 - 💬 Ask me about: Python, Java, AndroidStudios, Django.
 - 📫 How to reach me: aneeshgarray2000@gmail.com
 - 😄 Pronouns: Special
-- ⚡ Fun fact: Coffe <3
+- ⚡ Fun fact: Coffee addict <3
